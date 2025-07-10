@@ -22,4 +22,4 @@
 
 立即点击上方任意链接，解锁你专属的2025年日本成人影片免费观看体验！
 
-<span style="display:none;">[Canonical link]  (  ）</span>
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben3333 ）</span>
